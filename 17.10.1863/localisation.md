@@ -1,3 +1,3 @@
 # Lieu de conservation
 
-Exemplaire conservé à l’Abbatiale de Payerne, Suisse.
+Exemplaire conservé aux Archives communales de Payerne, Suisse.
